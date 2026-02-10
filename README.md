@@ -1,3 +1,3 @@
 Name: Vijayaragavan G
-College: Kalasalingam
+College: Kalasalingam KARE
 Workshop Date: February 10, 2026
